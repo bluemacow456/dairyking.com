@@ -1,2 +1,0 @@
-# dairyking.com
-moo ojasndjibdsgijbsdfijgnon
